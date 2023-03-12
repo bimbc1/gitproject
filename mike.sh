@@ -1,4 +1,5 @@
 ii:w
+u dey f up
 tunde said fuckmike
 tunde apo;ogised to mike
 used organization
