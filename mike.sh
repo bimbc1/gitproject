@@ -1,3 +1,4 @@
+mike abeg oo
 ii:w
 u dey f up
 tunde said fuckmike
